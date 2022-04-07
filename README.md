@@ -1,2 +1,0 @@
-# meikolyu
-no.1
